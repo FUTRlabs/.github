@@ -43,7 +43,13 @@ To receive a split of the profit of the workflows run in your community, please 
 
 ## Founders & Discord
 
-[Keith | KeithHanson](https://www.linkedin.com/in/hansonkeith/) [Dan | KingLord](https://www.linkedin.com/in/deichling/) [Anthony | Potatoe](https://www.linkedin.com/in/anthony-vicenti/)
+Contact us for:
+
+[Keith | KeithHanson](https://www.linkedin.com/in/hansonkeith/)
+
+[Dan | KingLord](https://www.linkedin.com/in/deichling/)
+
+[Anthony | Potatoe](https://www.linkedin.com/in/anthony-vicenti/)
 
 ## Collaboration
 
